@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Manoharr108
 - 👀 I’m interested in web dev
-- 🌱 I’m currently learning javascript
+- 🌱 I’m currently learning Express
 - 📫 Reach me -> manoharr108 on instagram
 - ⚡ Fun fact: A developer can do virtually can do anything
 
