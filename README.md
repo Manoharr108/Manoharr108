@@ -1,2 +1,1 @@
-Tired of Introducing myself, let's try something new...🥲🥲🥲🥲\n(oh shit, this is not workinn)
-let's start with you
+Tired of Introducing myself, let's try something new...🥲🥲🥲🥲\n(oh shit, this won't here)
