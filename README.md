@@ -1,1 +1,2 @@
-Tired of Introducing, let's try something new...🥲🥲🥲🥲
+Tired of Introducing myself, let's try something new...🥲🥲🥲🥲
+let's start with you
